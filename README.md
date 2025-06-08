@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sv129899@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fOnBUckDdivAvImaum1YmDJgxk_X_dAK/view?usp=drive_link](https://drive.google.com/file/d/1fOnBUckDdivAvImaum1YmDJgxk_X_dAK/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10grAa5qwO-V509pU1nAndCh_RJxAEWUl/view?usp=sharing](https://drive.google.com/file/d/10grAa5qwO-V509pU1nAndCh_RJxAEWUl/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am good at Video Games**
 
